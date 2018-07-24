@@ -1,1 +1,0 @@
-# faisa69-WSO-Shell-master
